@@ -1,4 +1,4 @@
-# 🎁 Guide SEO Complet — Cadeau de Noël 2024
+# 🎁 Guide SEO Complet — Cadeau de Noël 2025
 
 > Guide exhaustif et gratuit pour maximiser votre présence en ligne sur toutes les plateformes.
 
